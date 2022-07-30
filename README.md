@@ -1,4 +1,4 @@
 - 👋 Hi, I'm Thanapon and My nickname is Win.
-- 👀 I'm interested in Backend Developer.
+- 👀 I'm interested in Backend Developer or Frontend Developer.
 - 💞️ I'm looking to collaborate on... Now I'm unemployed and Currently looking for a job.
 - 📫 How to reach me Tel: 095-3288834.

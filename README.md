@@ -1,2 +1,1 @@
 - 👋 Hi, I'm Thanapon and My nickname is Win.
-- 👀 I'm interested in Backend Developer or Frontend Developer.
